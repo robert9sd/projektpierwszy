@@ -1,2 +1,0 @@
-# projektpierwszy
-# projektpierwszy
